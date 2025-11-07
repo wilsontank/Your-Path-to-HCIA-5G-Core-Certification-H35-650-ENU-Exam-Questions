@@ -1,0 +1,1 @@
+# Your-Path-to-HCIA-5G-Core-Certification-H35-650-ENU-Exam-Questions
